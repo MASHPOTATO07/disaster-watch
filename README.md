@@ -18,10 +18,9 @@ _To be added..._
 
 **Members:**
 
-* Castro, Michaela Marie N.
-* Cuadra, John Lester G.
-* Maruno, Hitomi B.
-* Quitor, Cedric John D.
+* Arellano, John Reyson G.
+* Atienza, John Ero M.
+* Barrion, Leslie M.
 
 **Technical Advisor:**
 
